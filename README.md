@@ -1,6 +1,6 @@
 - 👋 Hi, I’m KaiShuo Chang, @kaishuo2024
 - 👀 I’m interested in travelling ...
-- 🌱 I’m currently studying at University of Riverside.
+- 🌱 I’m currently studying at University of California, Riverside.
 - 💞️ I’m looking to collaborate on trading business ...
 - 📫 To reach me: kaishuo2022@gmail.com 
 - 😄 Pronouns: KS
